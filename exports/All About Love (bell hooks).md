@@ -1,3 +1,111 @@
+**Page 12 (Loc. 170-73)**
+
+**Date: Added on Saturday, December 03, 2022, 12:09 AM**
+>While ours is a nation wherein the vast majority of citizens are followers of religious faiths that proclaim the transformative power of love, many people feel that they do not have a clue as to how to love. And practically everyone suffers a crisis of faith when it comes to realizing biblical theories about the art of loving in everyday life. It is far easier to talk about loss than it is to talk about love. It is easier to articulate the pain of love’s absence than to describe its presence and meaning in our lives.
+---
+
+**Page 15 (Loc. 223-25)**
+
+**Date: Added on Saturday, December 03, 2022, 12:32 AM**
+>in psychiatrist M. Scott Peck’s classic self-help book The Road Less Traveled, first published in 1978. Echoing the work of Erich Fromm, he defines love as “the will to extend one’s self for the purpose of nurturing one’s own or another’s spiritual growth.”
+---
+
+**Page 15 (Loc. 226-28)**
+
+**Date: Added on Saturday, December 03, 2022, 12:32 AM**
+>Will also implies choice. We do not have to love. We choose to love.” Since the choice must be made to nurture growth, this definition counters the more widely accepted assumption that we love instinctually.
+---
+
+**Page 16 (Loc. 241-44)**
+
+**Date: Added on Saturday, December 03, 2022, 12:37 AM**
+>An overwhelming majority of us come from dysfunctional families in which we were taught we were not okay, where we were shamed, verbally and/or physically abused, and emotionally neglected even as were also taught to believe that we were loved. For most folks it is just too threatening to embrace a definition of love that would no longer enable us to see love as present in our families. Too many of us need to cling to a notion of love that either makes abuse acceptable or at least makes it seem that whatever happened was not that bad.
+---
+
+**Page 17 (Loc. 247-51)**
+
+**Date: Added on Saturday, December 03, 2022, 12:40 AM**
+>I did not want to describe us by using a term that implied our life together had been all negative or bad. I did not want my parents to think I was disparaging them; I was appreciative of all the good things that they had given in the family. With therapeutic help I was able to see the term “dysfunctional” as a useful description and not as an absolute negative judgment. My family of origin provided, throughout my childhood, a dysfunctional setting and it remains one. This does not mean that it is not also a setting in which affection, delight, and care are present.
+---
+
+**Page 17 (Loc. 258-60)**
+
+**Date: Added on Saturday, December 03, 2022, 12:42 AM**
+>I am grateful to have been raised in a family that was caring, and strongly believe that had my parents been loved well by their parents they would have given that love to their children. They gave what they had been given—care. Remember, care is a dimension of love, but simply giving care does not mean we are loving.
+---
+
+**Page 19 (Loc. 288-90)**
+
+**Date: Added on Saturday, December 03, 2022, 01:24 AM**
+>Many of us choose relationships of affection and care that will never become loving because they feel safer. The demands are not as intense as loving requires. The risk is not as great.
+---
+
+**Page 19 (Loc. 291-93)**
+
+**Date: Added on Saturday, December 03, 2022, 01:26 AM**
+>the truth is that most of us live relatively decent, somewhat satisfying lives even if we often feel that love is lacking. In these relationships we share genuine affection and/or care. For most of us, that feels like enough because it is usually a lot more than we received in our families of origin.
+---
+
+**Page 27 (Loc. 414-16)**
+
+**Date: Added on Saturday, December 03, 2022, 02:18 AM**
+>Even on death row, Masters’s heart remains open. And he can honestly confess to longing to give and receive love. Being hurt by parenting adults rarely alters a child’s desire to love and be loved by them. Among grown-ups who were wounded in childhood, the desire to be loved by uncaring parents persists, even when there is a clear acceptance of the reality that this love will never be forthcoming.
+---
+
+**Page 35 (Loc. 529-35)**
+
+**Date: Added on Sunday, December 04, 2022, 06:11 PM**
+>John Stoltenberg’s book The End of Manhood: A Book for Men of Conscience analyzes the extent to which the masculine identity offered men as the ideal in patriarchal culture is one that requires all males to invent and invest in a false self. From the moment little boys are taught they should not cry or express hurt, feelings of loneliness, or pain, that they must be tough, they are learning how to mask true feelings. In worst-case scenarios they are learning how to not feel anything ever. These lessons are usually taught to males by other males and sexist mothers. Even boys raised in the most progressive, loving households, where parents encourage them to express emotions, learn a different understanding about masculinity and feelings on the playground, in the classroom, playing sports, or watching television. They may end up choosing patriarchal masculinity to be accepted by other boys and affirmed by male authority figures.
+---
+
+**Page 44 (Loc. 665-71)**
+
+**Date: Added on Monday, December 05, 2022, 11:11 AM**
+>Many people find it helpful to critically examine the past, particularly childhood, to chart their internalization of messages that they were not worthy, not enough, that they were crazy, stupid, monstrous, and so on. Simply learning how we have acquired feelings of worthlessness rarely enables us to change things; it is usually only one stage in the process. I, like so many other people, have found it useful to examine negative thinking and behavioral patterns learned in childhood, particularly those shaping my sense of self and identity. However, this process alone did not ensure self-recovery. It was not enough. I share this because it is far too easy to stay stuck in simply describing, telling one’s story over and over again, which can be a way of holding on to grief about the past or holding on to a narrative that places blame on others.
+---
+
+**Page 53 (Loc. 803-8)**
+
+**Date: Added on Monday, December 05, 2022, 12:24 PM**
+>One of the best guides to how to be self-loving is to give ourselves the love we are often dreaming about receiving from others. There was a time when I felt lousy about my over-forty body, saw myself as too fat, too this, or too that. Yet I fantasized about finding a lover who would give me the gift of being loved as I am. It is silly, isn’t it, that I would dream of someone else offering to me the acceptance and affirmation I was withholding from myself. This was a moment when the maxim “You can never love anybody if you are unable to love yourself” made clear sense. And I add, “Do not expect to receive the love from someone else you do not give yourself.”
+---
+
+**Page 54 (Loc. 823-30)**
+
+**Date: Added on Monday, December 05, 2022, 03:24 PM**
+>In the conclusion to his insightful work The Art of Loving written in the mid-fifties but still relevant to today’s world, psychoanalyst Erich Fromm courageously calls attention to the reality that “the principle underlying capitalistic society and the principle of love are incompatible.” He contends: “Our society is run by a managerial bureaucracy, by professional politicians; people are motivated by mass suggestion, their aim is producing more and consuming more, as purposes in themselves.” The cultural emphasis on endless consumption deflects attention from spiritual hunger. We are endlessly bombarded by messages telling us that our every need can be satisfied by material increase. Artist Barbara Kruger created a work proclaiming “I shop therefore I am” to show the way consumerism has taken over mass consciousness, making people think they are what they possess. While the zeal to possess intensifies, so does the sense of spiritual emptiness. Because we are spiritually empty we try to fill up on consumerism. We may not have enough love but we can always shop.
+---
+
+**Page 58 (Loc. 886-88)**
+
+**Date: Added on Tuesday, December 06, 2022, 11:05 AM**
+>A commitment to spiritual life necessarily means we embrace the eternal principle that love is all, everything, our true destiny. Despite overwhelming pressure to conform to the culture of lovelessness, we still seek to know love. That seeking is itself a manifestation of divine spirit.
+---
+
+**Page 59 (Loc. 899-901)**
+
+**Date: Added on Tuesday, December 06, 2022, 11:08 AM**
+>Insightfully Jack Kornfield explains: “All other spiritual teachings are in vain if we cannot love. Even the most exalted states and the most exceptional spiritual accomplishments are unimportant if we cannot be happy in the most basic and ordinary ways, if, with our hearts, we cannot touch one another and the life we have been given. What matters is how we live.”
+---
+
+**Page 59 (Loc. 905-9)**
+
+**Date: Added on Tuesday, December 06, 2022, 11:10 AM**
+>it was especially awesome to learn by heart passages from First Corinthians, “the love chapter.” From childhood on I have often reflected on the passage that proclaims: “If I speak with the tongues of men and of angels, but have not love, I am a noisy gong or a clanging cymbal. And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have all faith so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I deliver my body to be burned, but have not love, I gain nothing.”
+---
+
+**Page 60 (Loc. 915-22)**
+
+**Date: Added on Tuesday, December 06, 2022, 11:13 AM**
+>When we begin to experience the sacred in our everyday lives we bring to mundane tasks a quality of concentration and engagement that lifts the spirit. We recognize divine spirit everywhere. This is especially true when we face difficulties. So many people turn to spiritual thinking only when they experience difficulties, hoping that the sorrow or pain will just miraculously disappear. Usually, they find that the place of suffering—the place where we are broken in spirit, when accepted and embraced, is also a place of peace and possibility. Our sufferings do not magically end; instead we are able to wisely alchemically recycle them. They become the abundant waste that we use to make new growth possible. That is why biblical scripture admonishes us to “count it all joy—when we meet various trials.” Learning to embrace our suffering is one of the gifts offered by spiritual life and practice.
+---
+
+**Page 65 (Loc. 995-1000)**
+
+**Date: Added on Tuesday, December 06, 2022, 11:48 AM**
+>Fear of radical changes leads many citizens of our nation to betray their minds and hearts. Yet we are all subjected to radical changes every day. We face them by moving through fear. These changes are usually imposed by the status quo. For example, revolutionary new technologies have led us all to accept computers. Our willingness to embrace this “unknown” shows that we are all capable of confronting fears of radical change, that we can cope. Obviously, it is not in the interest of the conservative status quo to encourage us to confront our collective fear of love. An overall cultural embrace of a love ethic would mean that we would all oppose much of the public policy conservatives condone and support.
+---
+
 **Page 66 (Loc. 1002-4)**
 
 **Date: Added on Tuesday, December 06, 2022, 11:53 AM**
@@ -304,12 +412,6 @@
 >TO RETURN TO love, to get the love we always wanted but never had, to have the love we want but are not prepared to give, we seek romantic relationships. We believe these relationships, more than any other, will rescue and redeem us. True love does have the power to redeem but only if we are ready for redemption. Love saves us only if we want to be saved. So many seekers after love are taught in childhood to feel unworthy, that nobody could love them as they really are, and they construct a false self. In adult life they meet people who fall in love with their false self. But this love does not last. At some point, glimpses of the real self emerge and disappointment comes. Rejected by their chosen love, the message received in childhood is confirmed: Nobody could love them as they really are.
 ---
 
-**Page 12 (Loc. 170-73)**
-
-**Date: Added on Saturday, December 03, 2022, 12:09 AM**
->While ours is a nation wherein the vast majority of citizens are followers of religious faiths that proclaim the transformative power of love, many people feel that they do not have a clue as to how to love. And practically everyone suffers a crisis of faith when it comes to realizing biblical theories about the art of loving in everyday life. It is far easier to talk about loss than it is to talk about love. It is easier to articulate the pain of love’s absence than to describe its presence and meaning in our lives.
----
-
 **Page 112 (Loc. 1705-11)**
 
 **Date: Added on Saturday, December 10, 2022, 01:47 PM**
@@ -502,12 +604,6 @@
 >A man’s eros, his capacity for love and relatedness, must be freed from attachment to the mother, and able to reach out to a woman who is his contemporary; otherwise he remains a demanding, dependent, childish person.” Here Sanford is speaking about negative dependency, which is not the same as healthy attachment. Men who are positively attached to their mothers are able to balance that bond, negotiating dependency and autonomy, and can extend it to affectional bonds with other women. In fact, most women know that a man who genuinely loves his mother is likely to be a better friend, partner, or mate than a man who has always been overly dependent on his mother, expecting her to unconditionally meet all his needs. Since genuine love requires a recognition of the autonomy of ourselves and the other person, a man who has loved in childhood has already learned healthy practices of individuation.
 ---
 
-**Page 15 (Loc. 223-25)**
-
-**Date: Added on Saturday, December 03, 2022, 12:32 AM**
->in psychiatrist M. Scott Peck’s classic self-help book The Road Less Traveled, first published in 1978. Echoing the work of Erich Fromm, he defines love as “the will to extend one’s self for the purpose of nurturing one’s own or another’s spiritual growth.”
----
-
 **Page 146 (Loc. 2230-34)**
 
 **Date: Added on Sunday, December 11, 2022, 07:17 PM**
@@ -538,12 +634,6 @@
 >Shame divides us from ourselves, just as it divides us from others, and because we still yearn for reunion, shame is deeply disturbing.” Shame about woundness keeps many people from seeking healing. They would rather deny or repress the reality of hurt. In our culture we hear a lot about guilt but not enough about the politics of shame. As long as we feel shame, we can never believe ourselves worthy of love.
 ---
 
-**Page 15 (Loc. 226-28)**
-
-**Date: Added on Saturday, December 03, 2022, 12:32 AM**
->Will also implies choice. We do not have to love. We choose to love.” Since the choice must be made to nurture growth, this definition counters the more widely accepted assumption that we love instinctually.
----
-
 **Page 148 (Loc. 2263-69)**
 
 **Date: Added on Tuesday, December 13, 2022, 09:54 AM**
@@ -566,94 +656,4 @@
 
 **Date: Added on Tuesday, December 13, 2022, 10:08 AM**
 >Understanding all the ways fear stands in the way of our knowing love challenges us. Fearful that believing in love’s truths and letting them guide our lives will lead to further betrayal, we hold back from love when our hearts are full of longing. Being loving does not mean we will not be betrayed. Love helps us face betrayal without losing heart. And it renews our spirit so we can love again. No matter how hard or terrible our lot in life, to choose against lovelessness—to choose love—we can listen to the voices of hope that speak to us, that speak to our hearts—the voices of angels. When angels speak of love they tell us it is only by loving that we enter an earthly paradise. They tell us paradise is our home and love our true destiny.
----
-
-**Page 16 (Loc. 241-44)**
-
-**Date: Added on Saturday, December 03, 2022, 12:37 AM**
->An overwhelming majority of us come from dysfunctional families in which we were taught we were not okay, where we were shamed, verbally and/or physically abused, and emotionally neglected even as were also taught to believe that we were loved. For most folks it is just too threatening to embrace a definition of love that would no longer enable us to see love as present in our families. Too many of us need to cling to a notion of love that either makes abuse acceptable or at least makes it seem that whatever happened was not that bad.
----
-
-**Page 17 (Loc. 247-51)**
-
-**Date: Added on Saturday, December 03, 2022, 12:40 AM**
->I did not want to describe us by using a term that implied our life together had been all negative or bad. I did not want my parents to think I was disparaging them; I was appreciative of all the good things that they had given in the family. With therapeutic help I was able to see the term “dysfunctional” as a useful description and not as an absolute negative judgment. My family of origin provided, throughout my childhood, a dysfunctional setting and it remains one. This does not mean that it is not also a setting in which affection, delight, and care are present.
----
-
-**Page 17 (Loc. 258-60)**
-
-**Date: Added on Saturday, December 03, 2022, 12:42 AM**
->I am grateful to have been raised in a family that was caring, and strongly believe that had my parents been loved well by their parents they would have given that love to their children. They gave what they had been given—care. Remember, care is a dimension of love, but simply giving care does not mean we are loving.
----
-
-**Page 19 (Loc. 288-90)**
-
-**Date: Added on Saturday, December 03, 2022, 01:24 AM**
->Many of us choose relationships of affection and care that will never become loving because they feel safer. The demands are not as intense as loving requires. The risk is not as great.
----
-
-**Page 19 (Loc. 291-93)**
-
-**Date: Added on Saturday, December 03, 2022, 01:26 AM**
->the truth is that most of us live relatively decent, somewhat satisfying lives even if we often feel that love is lacking. In these relationships we share genuine affection and/or care. For most of us, that feels like enough because it is usually a lot more than we received in our families of origin.
----
-
-**Page 27 (Loc. 414-16)**
-
-**Date: Added on Saturday, December 03, 2022, 02:18 AM**
->Even on death row, Masters’s heart remains open. And he can honestly confess to longing to give and receive love. Being hurt by parenting adults rarely alters a child’s desire to love and be loved by them. Among grown-ups who were wounded in childhood, the desire to be loved by uncaring parents persists, even when there is a clear acceptance of the reality that this love will never be forthcoming.
----
-
-**Page 35 (Loc. 529-35)**
-
-**Date: Added on Sunday, December 04, 2022, 06:11 PM**
->John Stoltenberg’s book The End of Manhood: A Book for Men of Conscience analyzes the extent to which the masculine identity offered men as the ideal in patriarchal culture is one that requires all males to invent and invest in a false self. From the moment little boys are taught they should not cry or express hurt, feelings of loneliness, or pain, that they must be tough, they are learning how to mask true feelings. In worst-case scenarios they are learning how to not feel anything ever. These lessons are usually taught to males by other males and sexist mothers. Even boys raised in the most progressive, loving households, where parents encourage them to express emotions, learn a different understanding about masculinity and feelings on the playground, in the classroom, playing sports, or watching television. They may end up choosing patriarchal masculinity to be accepted by other boys and affirmed by male authority figures.
----
-
-**Page 44 (Loc. 665-71)**
-
-**Date: Added on Monday, December 05, 2022, 11:11 AM**
->Many people find it helpful to critically examine the past, particularly childhood, to chart their internalization of messages that they were not worthy, not enough, that they were crazy, stupid, monstrous, and so on. Simply learning how we have acquired feelings of worthlessness rarely enables us to change things; it is usually only one stage in the process. I, like so many other people, have found it useful to examine negative thinking and behavioral patterns learned in childhood, particularly those shaping my sense of self and identity. However, this process alone did not ensure self-recovery. It was not enough. I share this because it is far too easy to stay stuck in simply describing, telling one’s story over and over again, which can be a way of holding on to grief about the past or holding on to a narrative that places blame on others.
----
-
-**Page 53 (Loc. 803-8)**
-
-**Date: Added on Monday, December 05, 2022, 12:24 PM**
->One of the best guides to how to be self-loving is to give ourselves the love we are often dreaming about receiving from others. There was a time when I felt lousy about my over-forty body, saw myself as too fat, too this, or too that. Yet I fantasized about finding a lover who would give me the gift of being loved as I am. It is silly, isn’t it, that I would dream of someone else offering to me the acceptance and affirmation I was withholding from myself. This was a moment when the maxim “You can never love anybody if you are unable to love yourself” made clear sense. And I add, “Do not expect to receive the love from someone else you do not give yourself.”
----
-
-**Page 54 (Loc. 823-30)**
-
-**Date: Added on Monday, December 05, 2022, 03:24 PM**
->In the conclusion to his insightful work The Art of Loving written in the mid-fifties but still relevant to today’s world, psychoanalyst Erich Fromm courageously calls attention to the reality that “the principle underlying capitalistic society and the principle of love are incompatible.” He contends: “Our society is run by a managerial bureaucracy, by professional politicians; people are motivated by mass suggestion, their aim is producing more and consuming more, as purposes in themselves.” The cultural emphasis on endless consumption deflects attention from spiritual hunger. We are endlessly bombarded by messages telling us that our every need can be satisfied by material increase. Artist Barbara Kruger created a work proclaiming “I shop therefore I am” to show the way consumerism has taken over mass consciousness, making people think they are what they possess. While the zeal to possess intensifies, so does the sense of spiritual emptiness. Because we are spiritually empty we try to fill up on consumerism. We may not have enough love but we can always shop.
----
-
-**Page 58 (Loc. 886-88)**
-
-**Date: Added on Tuesday, December 06, 2022, 11:05 AM**
->A commitment to spiritual life necessarily means we embrace the eternal principle that love is all, everything, our true destiny. Despite overwhelming pressure to conform to the culture of lovelessness, we still seek to know love. That seeking is itself a manifestation of divine spirit.
----
-
-**Page 59 (Loc. 899-901)**
-
-**Date: Added on Tuesday, December 06, 2022, 11:08 AM**
->Insightfully Jack Kornfield explains: “All other spiritual teachings are in vain if we cannot love. Even the most exalted states and the most exceptional spiritual accomplishments are unimportant if we cannot be happy in the most basic and ordinary ways, if, with our hearts, we cannot touch one another and the life we have been given. What matters is how we live.”
----
-
-**Page 59 (Loc. 905-9)**
-
-**Date: Added on Tuesday, December 06, 2022, 11:10 AM**
->it was especially awesome to learn by heart passages from First Corinthians, “the love chapter.” From childhood on I have often reflected on the passage that proclaims: “If I speak with the tongues of men and of angels, but have not love, I am a noisy gong or a clanging cymbal. And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have all faith so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I deliver my body to be burned, but have not love, I gain nothing.”
----
-
-**Page 60 (Loc. 915-22)**
-
-**Date: Added on Tuesday, December 06, 2022, 11:13 AM**
->When we begin to experience the sacred in our everyday lives we bring to mundane tasks a quality of concentration and engagement that lifts the spirit. We recognize divine spirit everywhere. This is especially true when we face difficulties. So many people turn to spiritual thinking only when they experience difficulties, hoping that the sorrow or pain will just miraculously disappear. Usually, they find that the place of suffering—the place where we are broken in spirit, when accepted and embraced, is also a place of peace and possibility. Our sufferings do not magically end; instead we are able to wisely alchemically recycle them. They become the abundant waste that we use to make new growth possible. That is why biblical scripture admonishes us to “count it all joy—when we meet various trials.” Learning to embrace our suffering is one of the gifts offered by spiritual life and practice.
----
-
-**Page 65 (Loc. 995-1000)**
-
-**Date: Added on Tuesday, December 06, 2022, 11:48 AM**
->Fear of radical changes leads many citizens of our nation to betray their minds and hearts. Yet we are all subjected to radical changes every day. We face them by moving through fear. These changes are usually imposed by the status quo. For example, revolutionary new technologies have led us all to accept computers. Our willingness to embrace this “unknown” shows that we are all capable of confronting fears of radical change, that we can cope. Obviously, it is not in the interest of the conservative status quo to encourage us to confront our collective fear of love. An overall cultural embrace of a love ethic would mean that we would all oppose much of the public policy conservatives condone and support.
 ---
