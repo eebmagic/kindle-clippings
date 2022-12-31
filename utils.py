@@ -73,6 +73,12 @@ def buildText(clips):
 
 
 def notify(title, text):
+    '''
+    Create a notification on macos.
+
+    @param title: The title of the notification
+    @param text: The body text for the notification
+    '''
     os.system("""
               osascript -e 'display notification "{}" with title "{}"'
               """.format(text, title))
