@@ -544,6 +544,30 @@
 >Will also implies choice. We do not have to love. We choose to love.” Since the choice must be made to nurture growth, this definition counters the more widely accepted assumption that we love instinctually.
 ---
 
+**Page 148 (Loc. 2263-69)**
+
+**Date: Added on Tuesday, December 13, 2022, 09:54 AM**
+>In Banished Knowledge: Facing Childhood Injuries, psychoanalyst Alice Miller states: “Not to take one’s own suffering seriously, to make light of it or even to laugh at it, is considered good manners in our culture. This attitude is even called a virtue and many people (at one time including myself) are proud of their lack of sensitivity toward their own fate and above all toward their own childhood.” As more people have found the courage to break through shame and speak about woundedness in their lives, we are now subjected to a mean-spirited cultural response, where all talk of woundedness is mocked. The belittling of anyone’s attempt to name a context within which they were wounded, were made a victim, is a form of shaming. It is psychological terrorism. Shaming breaks our hearts.
+---
+
+**Page 148 (Loc. 2269-73)**
+
+**Date: Added on Tuesday, December 13, 2022, 09:54 AM**
+>All individuals who are genuinely seeking well-being within a healing context realize that it is important to that process not to make being a victim a stance of pride or a location from which to simply blame others. We need to speak our shame and our pain courageously in order to recover. Addressing woundedness is not about blaming others; however, it does allow individuals who have been, and are, hurt to insist on accountability and responsibility both from themselves and from those who were the agents of their suffering as well as those who bore witness. Constructive confrontation aids our healing.
+---
+
+**Page 149 (Loc. 2273-76)**
+
+**Date: Added on Tuesday, December 13, 2022, 09:55 AM**
+>The story of Jacob’s confrontation with the angel is a narrative of healing precisely because it shows he is innocent. There is nothing he has done to anger the angel. The adversarial conflict is not of his making. He is not accountable. And he is not to blame for his wound. However, healing happens when he is able to embrace the wound as a blessing and assume responsibility for his actions.
+---
+
+**Page 152 (Loc. 2318-23)**
+
+**Date: Added on Tuesday, December 13, 2022, 10:08 AM**
+>Understanding all the ways fear stands in the way of our knowing love challenges us. Fearful that believing in love’s truths and letting them guide our lives will lead to further betrayal, we hold back from love when our hearts are full of longing. Being loving does not mean we will not be betrayed. Love helps us face betrayal without losing heart. And it renews our spirit so we can love again. No matter how hard or terrible our lot in life, to choose against lovelessness—to choose love—we can listen to the voices of hope that speak to us, that speak to our hearts—the voices of angels. When angels speak of love they tell us it is only by loving that we enter an earthly paradise. They tell us paradise is our home and love our true destiny.
+---
+
 **Page 16 (Loc. 241-44)**
 
 **Date: Added on Saturday, December 03, 2022, 12:37 AM**

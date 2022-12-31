@@ -99,3 +99,57 @@
 **Date: Added on Sunday, December 11, 2022, 09:39 PM**
 >
 ---
+
+**Page 36 (Loc. 544-50)**
+
+**Date: Added on Tuesday, December 13, 2022, 04:03 PM**
+>In the middle of a large open field, they had a very nice house, in comparison with the house seen in the city, almost. The city had all kinds of modern equipment and everything, such as telephone, electricity, running water, etc. This is a phenomenon worth discussing. Generally speaking, no matter where you go, these basic equipment are always available. There are times when you walk a long way to meet a family. This family will not lack anything. Various companies are also willing to provide services for this family, which actually kind of pays for itself. In terms of living conditions, the farmer is no less than anyone else. A “farmer” is, in fact, a farm owner (Farmer). The farm is private and the land is private. When you talk about farms, you should never use the Chinese concept. We may have thousands of people on a farm; in the United States there are usually only two or three people.
+---
+
+**Page 40 (Loc. 607-13)**
+
+**Date: Added on Tuesday, December 13, 2022, 04:25 PM**
+>What are the main characteristics of the American people’s spirit according to Commager? I have excerpted some of them, probably as follows. The spirit of optimism is unusually unusual. Everything is going well in this country, and natural conditions are so favorable that every enterprising and lucky person can become rich. Optimism comes from the reality of change, where every day the wilderness turns into good land, villages into cities, and ideals into reality. The belief is that there is nothing that can’t be done, and that we will not rest until we have won. Americans care more about the future than they do about the past and today. They have no sense of history and believe that only old crone who are not interested in the future are interested in the families of the past. So they see future presidents and millionaires in every barefoot boy, care for and love children, work for them, and let them grow.
+---
+
+**Page 41 (Loc. 624-25)**
+
+**Date: Added on Tuesday, December 13, 2022, 04:29 PM**
+>They instinctively think that only the unfortunate and the confused resort to that kind of esoteric philosophy, but they are not that kind of people.
+---
+
+**Page 41 (Loc. 626-28)**
+
+**Date: Added on Tuesday, December 13, 2022, 04:30 PM**
+>Denominations were numerous, but were considered different organizations rather than different doctrines, and they could no longer tell the difference between Methodists and Presbyterians, just as they could not see the difference in principle between Republicans and Democrats.
+---
+
+**Page 42 (Loc. 630-33)**
+
+**Date: Added on Tuesday, December 13, 2022, 04:31 PM**
+>Although Americans are young and unsophisticated, they are politically mature. Their political institutions are as flexible and effective as the machines they have invented. They were both skeptical and tolerant of culture, when it interfered with more important activities, and tolerant when it became a pastime or an entertainment for women. In exceptional cases, they demand that culture be something useful.
+---
+
+**Page 42 (Loc. 638-39)**
+
+**Date: Added on Tuesday, December 13, 2022, 04:33 PM**
+>They do not like the same old thing, always love to do what others have not done, willing to accept the challenge. It is democratic and completely equal.
+---
+
+**Page 42 (Loc. 641)**
+
+**Date: Added on Tuesday, December 13, 2022, 04:34 PM**
+>In fact economic inequality is conceived as equality.
+---
+
+**Page 42 (Loc. 643-48)**
+
+**Date: Added on Tuesday, December 13, 2022, 04:37 PM**
+>They are casual, unpretentious, speak casually, dress casually, eat casually, and treat people casually, which may be considered indulgent and rude and uncouth. Find authority and rules and regulations to be a headache and find it insulting and challenging to follow certain rules. There is little to no discipline in school. Parents rarely control their children and children rarely respect their parents, but family life is happy. The military is lax in discipline, but can fight wars. Americans have no apparent respect for the law, but actually respect the rule of law, and the Constitution is the supreme law. And so on and so forth. Commager concludes that these beliefs cannot help but have practical consequences and be reflected in the everyday behavior of the American people.
+---
+
+**Page 46 (Loc. 698)**
+
+**Date: Added on Tuesday, December 13, 2022, 04:51 PM**
+>It can be described with four words - poor and backward.
+---
