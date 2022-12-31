@@ -29,21 +29,16 @@ counter = 1
 indexes = {}
 for book, clips in bookclips.items():
     if book not in ignorable:
-        print(f"{counter:>3} | {len(clips):>4} | {book}")
         indexes[counter] = book
         counter += 1
 
-if len(indexes) == 0:
-    quit('NO BOOKS.')
-selection = 2
-title = indexes[selection]
 
-selectedClips = bookclips[title]
-selectedClips = sorted(selectedClips, key=lambda c: c['location'])
+        # selectedClips = bookclips[title]
+        # selectedClips = sorted(selectedClips, key=lambda c: c['location'])
 
-newcontent = buildText(selectedClips)
-filename = f'exports/{title}.md'
-with open(filename, 'w') as file:
-    file.write(newcontent)
-    print(f'WROTE TO FILE: {filename}')
+        newcontent = buildText(clips)
+        filename = f'exports/{book}.md'
+        with open(filename, 'w') as file:
+            file.write(newcontent)
+            print(f'WROTE TO FILE: {filename}')
 
