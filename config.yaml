@@ -1,4 +1,6 @@
 exportDir: /Users/ebolton/Documents/kindle-clippings/exports
+clippingsFilePath: /Volumes/Kindle/documents/My Clippings.txt
+systemNotifications: True
 ignorable:
   - The Moneyless Man (Mark Boyle)
   - The Secret Thoughts of an Unlikely Convert (Rosaria Butterfield)

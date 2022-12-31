@@ -1,3 +1,5 @@
+import os
+
 def parseClipsToJson(content):
     '''
     Parse the text of a clippings text file and convert to a dict structure.
@@ -66,3 +68,9 @@ def buildText(clips):
 
     newcontent = '\n'.join(entries)
     return newcontent
+
+
+def notify(title, text):
+    os.system("""
+              osascript -e 'display notification "{}" with title "{}"'
+              """.format(text, title))
