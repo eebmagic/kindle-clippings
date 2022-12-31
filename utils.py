@@ -1,8 +1,6 @@
-import json
-
 def parseClipsToJson(content):
     '''
-    Parse the text of a clippings text file and convert to a json structure.
+    Parse the text of a clippings text file and convert to a dict structure.
 
     @param content: String of full text in the My Clippings.txt file from a kindle
     @return clips: Dictionary of book titles to lists of highlights
@@ -68,16 +66,3 @@ def buildText(clips):
 
     newcontent = '\n'.join(entries)
     return newcontent
-
-
-if __name__ == '__main__':
-    # Load file
-    with open('/Volumes/Kindle/documents/My Clippings.txt', 'r') as file:
-        content = file.read()
-
-    clips = parseClipsToJson(content)
-    # Dump to file
-    filename = 'data.json'
-    with open(filename, 'w') as file:
-        json.dump(clips, file, indent=2)
-        print(f'DUMPED TO FILE: {filename}')
