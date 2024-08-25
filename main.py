@@ -25,8 +25,12 @@ try:
         content = file.read()
 except Exception as e:
     # Give notification
-    if systemNotifications:
+    if isinstance(e, AssertionError):
+        print('Ignoring assertion check for path because volume likely disconnected.')
+        quit()
+    elif systemNotifications:
         notify('KINDLE CLIPS ERROR', str(e))
+
     raise e
 
 bookclips = parseClipsToJson(content)
